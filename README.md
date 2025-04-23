@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Hey,✋ fellow earth🌍 roamers, how's it going?<br>I know some of us are here for passion, some for the paycheck,<br>and some... well, because their parents threw them out and coding was the only option left  (kidding... or am I?)<br>Either way, You are welcome here<br>
 
 
