@@ -1,6 +1,7 @@
-##  I'm Ranjesh Kushwaha 
-#### Mumbaikar!
-## Feel free to look around and have a nice day!
+## I'm Ranjesh Kushwaha
+### with a keen interest in software development driven by AI/ML, supported by a strong emphasis on data security. 
+##### Mumbaikar!
+#### Feel free to look around and have a nice day!
 
 
 ###  Contact At:
