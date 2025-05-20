@@ -1,7 +1,6 @@
 ##  I'm Ranjesh Kushwaha
 Hey ✋ fellow Earth🌍 roamers, how's it going?
-
-
+##feel free to look around and have a nice nice day!
 
 
 ###  Contact At:
