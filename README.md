@@ -1,5 +1,5 @@
-##  I'm Ranjesh Kushwaha
-### Hey ✋ fellow Earth🌍 roamers, how's it going?
+##  I'm Ranjesh Kushwaha 
+#### Mumbaikar!
 ## Feel free to look around and have a nice day!
 
 
