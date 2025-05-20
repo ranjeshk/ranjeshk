@@ -1,8 +1,6 @@
 ##  I'm Ranjesh Kushwaha
 Hey ✋ fellow Earth🌍 roamers, how's it going?
-I know some of us are here for passion, some for the paycheck,
-and some... well, because their parents threw them out and coding was the only option left (kidding... or am I?)
-<br>Either way, you are welcome here.
+
 
 
 
